@@ -1,3 +1,3 @@
 prezentace třídy i11  
-téma prezentace-bankovnictví  
+téma prezentace-bankovní identita 
 rozsah prezentace-cca 20 snímků  
